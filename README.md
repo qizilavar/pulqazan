@@ -1,0 +1,2 @@
+# pulqazan
+pul qazanmaq
